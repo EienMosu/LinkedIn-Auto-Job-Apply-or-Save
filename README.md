@@ -1,1 +1,1 @@
-# LinkedIn-Auto-Job-Apply-o-rSave
+# LinkedIn-Auto-Job-Apply-or-Save
